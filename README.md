@@ -14,3 +14,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: `kitplummer` just about everywhere, 'cept Twitter
 - 😄 Pronouns: he and him
 - ⚡ Fun fact: I have two grand kids - Asher and Addie
+
+[Me at LinkedIn](https://linkedin.com/in/kitplummer)
